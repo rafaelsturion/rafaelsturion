@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **joaorafaelsturion@gmail.com**
 
-- ⚡ Fun fact **I'm passionate about Crossfit and I can't imagine going a day without it.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
