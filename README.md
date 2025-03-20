@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently pursuing a degree in **Cross-Plataform Software Development**
 
-- 📫 How to reach me **joaorafaelsturion@gmail.com**
+
 
 
 <h3 align="left">Connect with me:</h3>
